@@ -1,1 +1,1 @@
-# Student group 6.1226 Vlad
+# Student groups 6.1226 Vlad
